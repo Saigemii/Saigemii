@@ -31,5 +31,41 @@
 ## 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮 !
 
 ### 𝘊𝘢𝘭𝘭 𝘮𝘦: ‎𝙎𝙖𝙞𝙜𝙚, 𝙎𝙖𝙚𝙞, 𝙤𝙧 𝙎𝙖𝙚 / 𝙎𝙖𝙞
-- INFP ☆ 16y ☆ Sep 24
+- 𝗜𝗡𝗙𝗣 ☆ 16y ☆ *Sep 24*
 - Half Spanish-Filipino, though I only speak English and a tiny bit of Tagalog. Sadly, I’m really disconnected from my Spanish side.
+
+<img width="735" height="264" alt="Image" src="https://github.com/user-attachments/assets/4470ae5b-7a13-4b9a-b513-560298181008" />
+
+## 𝓞𝓽𝓱𝓮𝓻 𝓘𝓷𝓯𝓸 ☜
+
+<details> 
+<summary>𝔽𝕒𝕟𝕕𝕠𝕞𝕤 ♡</summary>
+
+- Genshin Impact (?)
+- Blue Lock
+- Hypnosis Mic
+- Fragaria Memories
+- Alien Stage
+- Twisted Wonderland 
+- ‎Vanitas No Carte
+- Bungo Stray Dogs
+- Death Note
+- ‎Yuri on Ice
+- ‎Banana Fish
+- Vocaloids (?)
+- Bluey (It's lovely okay...)
+- ‎Ducktales
+> etc. ??? Feel free to ask or recommend!
+‎
+</details>
+
+<details>
+<summary>ℂ𝕙𝕒𝕣𝕒𝕔𝕥𝕖𝕣𝕤 ♡</summary>
+
+- ‎**Kins (Yes, I love them too!)**
+> Freminet, Shiki Ando, Edgar Allan Poe, Kalim Al Asim, Noé Archiviste, and Sua
+
+- **Other Favs!**
+> Allen Sugasano, Hifumi Izanami, Doppo Kannonzaka, Yip Gaming, Roland Fortis, Bachira Meguru, Rin Itoshi, Near/Nate River, Kenji Miyazawa, Idia Shroud, Myunna, Hallritt, etc.
+
+</details>
