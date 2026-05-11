@@ -3,3 +3,8 @@
 # “Wₑₗcₒₘₑ, dₑₐᵣ ₜᵣₐᵥₑₗₗₑᵣ.”
 
 <img width="736" height="227" alt="Image" src="https://github.com/user-attachments/assets/d15e94ef-05af-4738-9d1f-db045e0fbaf1" />
+
+<details>
+<summary>𝐁𝐅𝐘 (𝐁𝐞𝐟𝐨𝐫𝐞 𝐘𝐨𝐮 𝐅𝐨𝐥𝐥𝐨𝐰)</summary>
+  
+</details>
