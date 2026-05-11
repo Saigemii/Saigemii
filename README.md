@@ -22,5 +22,14 @@
 
 - ‎Racists, ableists, homophobes, loli/shotacons, proshippers, incest shippers.‎
 > ‎I also block freely, so please be mindful of your actions and words.
+> - People under 13 or above 20, please IWC.
 
 </details>
+
+<img width="735" height="264" alt="Image" src="https://github.com/user-attachments/assets/1cbedeb2-a3a5-4fbe-9795-f31e3f3b1d27" />
+
+## 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮 !
+
+### 𝘊𝘢𝘭𝘭 𝘮𝘦: ‎𝙎𝙖𝙞𝙜𝙚, 𝙎𝙖𝙚𝙞, 𝙤𝙧 𝙎𝙖𝙚 / 𝙎𝙖𝙞
+- INFP ☆ 16y ☆ Sep 24
+- Half Spanish-Filipino, though I only speak English and a tiny bit of Tagalog. Sadly, I’m really disconnected from my Spanish side.
