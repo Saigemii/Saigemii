@@ -33,13 +33,14 @@
 ### 𝘊𝘢𝘭𝘭 𝘮𝘦: ‎𝙎𝙖𝙞𝙜𝙚, 𝙎𝙖𝙚𝙞, 𝙤𝙧 𝙎𝙖𝙚 / 𝙎𝙖𝙞
 - 𝗜𝗡𝗙𝗣 ☆ 16y ☆ *Sep 24*
 - Half Spanish-Filipino, though I only speak English and a tiny bit of Tagalog. Sadly, I’m really disconnected from my Spanish side.
+> - Often semi-verbal; I don't speak much, so I hope that just my presence is alright.
 
 <img width="735" height="264" alt="Image" src="https://github.com/user-attachments/assets/4470ae5b-7a13-4b9a-b513-560298181008" />
 
 ## 𝓞𝓽𝓱𝓮𝓻 𝓘𝓷𝓯𝓸 ☜
 
 <details> 
-<summary>𝔽𝕒𝕟𝕕𝕠𝕞𝕤 ♡</summary>
+<summary>𝕀𝕟𝕥𝕖𝕣𝕖𝕤𝕥𝕤/𝔽𝕒𝕟𝕕𝕠𝕞𝕤 ♡</summary>
 
 - Genshin Impact (?)
 - Blue Lock
@@ -69,3 +70,7 @@
 > Allen Sugasano, Hifumi Izanami, Doppo Kannonzaka, Yip Gaming, Roland Fortis, Bachira Meguru, Rin Itoshi, Near/Nate River, Kenji Miyazawa, Idia Shroud, Myunna, Hallritt, etc.
 
 </details>
+
+<img width="735" height="350" alt="Image" src="https://github.com/user-attachments/assets/086dcc55-893e-447d-8a6e-2e2bdb0b8ea3" />
+
+# “ₜₕₐₙₖₛ fₒᵣ bₑᵢₙg ₐ ₚₐᵣₜ ₒf ₘy ⱼₒᵤᵣₙₑy”
