@@ -32,6 +32,7 @@
 
 ### 𝘊𝘢𝘭𝘭 𝘮𝘦: ‎𝙎𝙖𝙞𝙜𝙚, 𝙎𝙖𝙚𝙞, 𝙤𝙧 𝙎𝙖𝙚 / 𝙎𝙖𝙞
 - 𝗜𝗡𝗙𝗣 ☆ 16y ☆ *Sep 24*
+- Nonbinary ✯ They/Them ✯ Pansexual 
 - Half Spanish-Filipino, though I only speak English and a tiny bit of Tagalog. Sadly, I’m really disconnected from my Spanish side.
 > - Often semi-verbal; I don't speak much, so I hope that just my presence is alright.
 
