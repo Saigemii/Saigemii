@@ -46,6 +46,7 @@
 - Genshin Impact (?)
 - Blue Lock
 - Hypnosis Mic
+- Paradox Live 
 - Fragaria Memories
 - Alien Stage
 - Twisted Wonderland 
